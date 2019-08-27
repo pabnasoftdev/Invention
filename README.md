@@ -1,5 +1,14 @@
 # Invention
 By Engr. Md. Abul Fazal
+TITLE: EASY SEO METHOD DISCOVERED and FIVE OUTSOURCING SEO KEYWORDS INVENTION
+
+Engr. Md. Abul Fazal
+
+Researcher and Computer Scientist of Pabnasoft(Bandoc-3778)
+
+E-mail:abulfazalmcse@gmail.com
+
+www.pabnasoft.com Mirpur, Dhaka-1216
  Abstract: Easy SEO Method is the best SEO Method system for ranking one, top ten, and top twenty on Google search engine optimization. It may be changed any time. It is not permanent ranking position. Any one can use this method for ranking website or software based website on Google search engine optimization. It is a very easy SEO Method system for ranking position on Google search engine optimization. This Easy SEO Method system that we can use for any website, web based software for ranking position on Google search engine optimization. Tested five SEO Keyword by Pabnasoft(with Easy SEO Method):Engr. Md. Abul Fazal has tested this Easy SEO Method by Pabnasoft website(www.pabnasoft.com) by five SEO Keywords such as outsourcing soft, best outsourcing software companies, best outsourcing software company in the World, best outsourcing software companies in the World and best outsourcing software training companies. Anyone can see pabnasoft website slideshow screenshot (www.pabnasoft.com) for proving five SEO Keyword, pabnasoft ranking position one on Google search engine optimization.
 
 Five outsourcing SEO Keywords are
